@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lshreyasharmal
 - 🌱 I’m currently pursuing a Masters in Science in Engineering in Computer Science at Johns Hopkins University.
-- 📫 Email me at ssharm87@jhu.edu or ss.shreyasharma@outlook.com 
+- 📫 Email me at ss.shreyasharma1609@gmail.com
 - Linkedin https://www.linkedin.com/in/shreya0sharma/
 
 <!---
